@@ -1,7 +1,7 @@
-- 👋 ola, eu sou larissa
-- 👀  estou interessada em ter minha experiencia em jovem aprendiz
+- 👋 ola, eu sou isabelly cristina
+- 👀  estou interessada em ter minha primeira experiencia em jovem aprendiz
 - 🌱  atualmente estou cursando o ensino medio
-- 💞️  estou proucurando colaborar com a empresa e ajudar a cescer 
-- 📫  silvestrelarissa004@gmail.com
+- 💞️  estou proucurando colaborar com a empresa e ajudar a cescer cada vez mais
+- 📫  isabellylima56799@gmail.com
 - 😄 ela\\dela
-- ⚡ tenho 16 anos, sou filha unica e jogo volei
+- ⚡ tenho 15 anos, tenho 2 irmaos e tenho boa comunicaçao
